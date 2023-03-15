@@ -1,0 +1,1 @@
+# LGBTQ_safe-zone.com
